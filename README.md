@@ -1,0 +1,1 @@
+# Rodrigo-Ibanez-ia-generativa-copilot-openai
